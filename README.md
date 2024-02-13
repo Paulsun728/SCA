@@ -1,1 +1,1 @@
-Supply Chain Analytics In Emory 2024
+Supply Chain Analytics in Emory 2024
